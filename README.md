@@ -40,3 +40,7 @@ Tenemos un forumulario de soporte en la página. ¡No dudes en contactarme ahí!
 ![img](folmurario.png)
 
 ![img](https://external-preview.redd.it/DA8qoA5CE-npVws_gfynqNquL6tc8yV2DQ5QnwF2pSs.jpg?auto=webp&s=be6eb7bfb16a9fe409f9e0066359b9fd8534323b)
+
+yo el 16 de febrero de 2025 a las 8 de la tarde:
+
+![img](https://cdn.discordapp.com/attachments/1032346163703205939/1340765053045051517/image.png?ex=67b38c42&is=67b23ac2&hm=00bbfbec88239458a4ddf9636d23ec5869c66fd170ffc97717883660b957cce7&)
